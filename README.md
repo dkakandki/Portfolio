@@ -1,2 +1,0 @@
-# Portfolio
-Divya's portfolio
